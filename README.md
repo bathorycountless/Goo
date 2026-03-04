@@ -2,6 +2,10 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6D00F7&center=true&repeat=false&width=500&height=100&lines=WSGG!+IM+SAURN+%2F+RI)](https://git.io/typing-svg)
 
 ![Image](Untitled170.png)
+
+
+[strawpage](https://zeeeeesyrn.straw.page) 𓋹 [letterbox](https://boxd.it/jOWav) 
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6D00F7&center=true&repeat=false&width=435&lines=Dni!+!+)](https://git.io/typing-svg)
 
 <div align="center">

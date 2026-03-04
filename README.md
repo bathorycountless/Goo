@@ -2,7 +2,13 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6D00F7&center=true&repeat=false&width=500&height=100&lines=WSGG!+IM+SAURN+%2F+RI)](https://git.io/typing-svg)
 
 ![Image](Untitled170.png)
+<div align="center">
 
+heyy! im saturn or ri. im aroace but i as much as i dont mind , I do dislike constant sexual jokes so please dont overdo it around me. ☣︎ MINOR! 2/6/11. ★ i am a metalhead and hard left leaning anarchist alternative being. 
+
+i very much enjoy metal, horror media, and supernatural media as well. im also a yume but idgaf nor will i ever care about doubles. 
+
+</div>
 
 [strawpage](https://zeeeeesyrn.straw.page) 𓋹 [letterbox](https://boxd.it/jOWav) 
 

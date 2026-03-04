@@ -1,3 +1,3 @@
-<div style="text-align: center; font-family: 'Old English Text', 'Blackletter', serif; color: #D800FF; font-size: 24px;">HEYY, IM SATURN OR RI!</div>
+<h1 style="text-align: center; font-family: 'Palatino Linotype', 'Book Antiqua', Palatino, serif; color: #D800FF; font-weight: bold; letter-spacing: 2px;">HEYY, IM SATURN OR RI!</h1>
 
 ![Image](Untitled170.png)

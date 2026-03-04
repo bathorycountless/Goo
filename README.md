@@ -1,3 +1,3 @@
-<h1 style="text-align: center; font-family: 'Palatino Linotype', 'Book Antiqua', Palatino, serif; color: #D800FF; font-weight: bold; letter-spacing: 2px;">HEYY, IM SATURN OR RI!</h1>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Gothic+Serif&size=25&pause=1000&color=D800FF&random=true&width=500&height=55&lines=Heyy%2C+I'm+saurn+or+ri!)](https://git.io/typing-svg)
 
 ![Image](Untitled170.png)

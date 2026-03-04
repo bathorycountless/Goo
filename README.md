@@ -4,7 +4,7 @@
 ![Image](Untitled170.png)
 <div align="center">
 
-heyy! im saturn or ri. im aroace but i as much as i dont mind , I do dislike constant sexual jokes so please dont overdo it around me. ☣︎ MINOR! 2/6/11. ★ i am a metalhead and hard left leaning anarchist alternative being. 
+heyy! im saturn or ri. im aroace but i as much as i dont mind , I do dislike constant sexual jokes so please dont overdo it around me. ☣︎ MINOR! 2/6. ★ i am a metalhead and hard left leaning anarchist alternative being. 
 
 i very much enjoy metal, horror media, and supernatural media as well. im also a yume but idgaf nor will i ever care about doubles. 
 

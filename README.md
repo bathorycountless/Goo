@@ -6,6 +6,8 @@
 
 [strawpage](https://zeeeeesyrn.straw.page) 𓋹 [letterbox](https://boxd.it/jOWav) 
 
+![Image](tumblr_d1219ffc0dd8bfed47cb1304b3841862_a2c0b283_2048.png)
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6D00F7&center=true&repeat=false&width=435&lines=Dni!+!+)](https://git.io/typing-svg)
 
 <div align="center">

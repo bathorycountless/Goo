@@ -1,5 +1,6 @@
 ![Image](Untitled168_20260304000832.png)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6D00F7&center=true&repeat=false&width=500&height=100&lines=WSGG!+IM+SAURN+%2F+RI)](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6F26F7&width=435&lines=WSG+!+IM+MORIYAH+%2F+SATURN)](https://git.io/typing-svg)
 
 ![Image](Untitled170.png)
 <div align="center">
